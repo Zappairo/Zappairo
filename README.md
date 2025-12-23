@@ -2,7 +2,7 @@
 
 ## About me
 
-I'm Guillaume, 27yo, Fiber Optic Research Officer
+I'm Guillaume, 27yo, Engineering / Design Manager (Telecom Infrastructure)
 
 • 🥁​ I'm currently working with:
 
